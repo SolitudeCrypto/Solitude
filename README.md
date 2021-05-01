@@ -1,0 +1,2 @@
+# Solitude
+Autostaking. Memes. Community.
